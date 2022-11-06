@@ -9,5 +9,7 @@
 ![191534859-e324cd40-4776-47c9-a7a6-e94bd579fedd](https://user-images.githubusercontent.com/113705782/200153193-47596fc9-c72b-425a-9bca-f80ddf55b8bf.jpg)
 ![191534903-9cfd3b0e-806f-45b3-b1e2-44a51bde24c2](https://user-images.githubusercontent.com/113705782/200153200-55b60567-8684-4865-ac6c-a2ccd5c8d877.jpg)
 ![z3858279599092_7ca53f07a17fc9653cd29701ac6796f3](https://user-images.githubusercontent.com/113705782/200153202-50c4f8a1-960f-4486-a7f1-45cb4dad13de.jpg)
-
+# CANBOKETOAN
+![BTN_P1 TU](https://user-images.githubusercontent.com/113705782/200176302-7fa34eb0-b735-4291-91b4-daaeaa2e34fc.jpg)
+![BTN_P2 TU](https://user-images.githubusercontent.com/113705782/200176305-0a8529b3-da7d-42f8-88df-d4d1695f3f51.jpg)
 
